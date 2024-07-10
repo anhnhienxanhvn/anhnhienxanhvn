@@ -1,16 +1,21 @@
-## Hi there 👋
+## Công Ty TNHH Ánh Nhiên Xanh
 
-<!--
-**anhnhienxanhvn/anhnhienxanhvn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ánh Nhiên Xanh chuyên sản xuất và phân phối vật liệu xây dựng xanh thân thiện môi trường: gạch aac, tấm panel alc, tấm cemboard, với sứ mệnh: Kiến tạo Việt Nam phát triển bền vững hướng tới Net zero.
 
-Here are some ideas to get you started:
+Thông tin liên hệ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hotline: 0888694499
+
+Email: info@anx.vn
+
+Address: 330/72/31 Quốc Lộ 1, P.Bình Hưng Hòa B, Q.Bình Tân, TP. Hồ Chí Minh, Việt Nam
+
+Website: https://anx.vn/
+
+https://anx.vn/vn/tin-tuc.html
+
+https://x.com/anhnhienxanhvn
+
+https://www.youtube.com/channel/UCs9drTzv-ai9SJgE-gvTkug
+
+https://www.pinterest.com/anhnhienxanhvn/
