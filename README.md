@@ -8,7 +8,7 @@ Hotline: 0888694499
 
 Email: info@anx.vn
 
-Address: 330/72/31 Quốc Lộ 1, P.Bình Hưng Hòa B, Q.Bình Tân, TP. Hồ Chí Minh, Việt Nam
+Address: 330/72/31 Lê Đức Anh ( Quốc Lộ 1), P.Bình Tân, TP. Hồ Chí Minh, Việt Nam
 
 Website: https://anx.vn/
 
